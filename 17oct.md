@@ -10,5 +10,6 @@ white money is involved as the payment is done through cheque or demand draft.
 * Rice is a kharif crop .Punjab, West Bengal , UttarPradesh is leading producer of rice in india. government Set MEP as $1200 for one toon which is not export price for rice due to which farmer face a loss.aus,aman,boro are the types of rice grow in west-bengal.
 * Nuclear powerplant consumption or problem faced in geetting that technology.
 * EIA
+  
   Sources:
   https://www.youtube.com/watch?v=4VvRMH_zPdI&t=1802s
