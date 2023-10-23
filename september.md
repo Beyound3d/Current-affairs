@@ -12,4 +12,8 @@ Sources:
 * After year delay CSIR bhatnagar award for 2022 announced.
 * shaktikant das-governor of india
 * indore tops clean air survey among cities with mn-plus people
+* tharman shanmugaratna president of singapore from indian origin.
+* FATF(financial action task force)
+* fugitive economic offender(FEO)
+* PM arrives indonesia to attend east asia ASEAN indian summit:greets indian dispora
 
